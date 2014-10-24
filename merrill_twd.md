@@ -2,7 +2,7 @@
 	After about a mile of forest, I heard footsteps behind me and turned around, holding my gun up. Something grabbed my shoulder and I spun on my heels, coming face to face with a walker. I shot it and it dropped to the ground, dead, pulling me with it. I struggled to get up, but I was stuck. Another walker came from the sound of the gun and tried to get me. I held it back with one hand, pulling the trigger with the other. My gun was empty. 
 	“Damnit Batman!” I cursed. I screamed and dropped my gun, using both hands to hold the walker back. It fell on top of me, dead, with a knife through it's skull. A guy hovered over me. He wasn't a walker. He had grey hair and a rifle on his back.
 	“Need some help?” He asked, holding out his hand. I grawled out from under the walkers, and he pulled me up.
-	“Thanks for saving me.” I thanked.
+	“Thanks for saving me.” I said.
 	“Of course. Do you have a group to go back to, or something?” He inquired.
 	“No. It's just been me and Batman for a while, 6 months, I think, since my mom died. I've been wondering around since then, going place to place. I'm actually looking for someone.” I explained.
 	“I'm sorry for your loss. I'm Dale.” He greeted, extending his hand.
@@ -12,17 +12,17 @@
 	“Shane, this is Summer. She was about to get bitten.” Dale introduced.
 	“Are you with Batman?” Shane asked me. I nodded. “How old are you?” He followed.
 	“12.” I replied.
-	“Damn. Well, lucky for you, there are 2 other 12 year olds hear. Welcome to our group. Don't worry. We'll be like family soon.” He smiled. He walked away. Dale made me sit on a step on the RV and put a Band-aid on my forehead. He also checked my foot. It wasn't sprained, it just hurt. Afterwards, he introduced me to everyone and set up tent for me. Soon enough, it was starting to get dark. I slept in my tent, holding my gun under my pillow, just in case. 
+	“Damn. Well, lucky for you, there are two other 12-year-olds here. Welcome to our group. Don't worry. We'll be like family soon.” He smiled. He walked away. Dale made me sit on a step on the RV and put a Band-aid on my forehead. He also checked my foot. It wasn't sprained, it just hurt. Afterwards, he introduced me to everyone and set up tent for me. Soon enough, it was starting to get dark. I slept in my tent, holding my gun under my pillow, just in case. 
 	I woke up and got dressed. I sat against the RV and watched Lori give Carl a haircut. Shane was talking about catching frogs. A loud sound started echoing through the camp, and I jumped up. A red car drove up, alarm blaring. I held my gun up, but Carl lowered my arm as an asian man stepped out.
 	“Holy crap! Turn that damn thing off!” Dale ordered. 
-	“I don't know how.” The asian guy admitted. 
+	“I don't know how,” the asian guy admitted. 
 	“Pop the hood, please. Would you pop the damn hood, please? Pop the damn hood, please!” Shane yelled.
 	At the same time, Amy was asking him, “My sister, Andrea. Is she okay? Is she alright? Is she coming back? Is she okay? Did she get out of the city? Is she coming back?”
 	“Okay, okay, okay.” The asian guy said, ducking into the car, popping the hood. He stepped out and turned to Amy, “Yeah, yeah, yeah. She's okay.” 
 	Jim pulled a plug out of the engine and the car stopped. “Why isn't she with you? Where is she? She is okay?” Amy demanded.
 	“Yes. They're fine. Everyone is. Well, Merle not so much.” The asian guy confessed. I didn't know who anyone was talking about.
 	“Are you crazy? Driving this wailing bastard up here? Are you trying to attract every walker for miles?” Shane yelled.
-	“I think we're okay.” Dale sighed.
+	“I think we're okay,” Dale sighed.
 	“You call being stupid 'okay'?” Shane retorted.
 	“The alarm was echoing all over these hills. Hard to pinpoint the source.” Dale pointed out. Shane turned around and Dale continued talking, glancing at the asian guy, “I'm not arguing. I'm just saying. And it wouldn't hurt to think things through more carefully next time, would it?”
 	“Sorry. I got a cool car.” The guy defended. A truck approached and I gripped my gun tighter. A bunch of people stepped out and reunited with the others. I stood close to the RV, watching the scene. I don't think anyone noticed me and Batman.
