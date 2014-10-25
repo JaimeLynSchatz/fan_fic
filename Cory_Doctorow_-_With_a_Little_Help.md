@@ -175,11 +175,11 @@ THE THINGS THAT MAKE ME WEAK AND STRANGE GET ENGINEERED AWAY
 
 -Jonathan Coulton, The Future Soon
 
-Lawrence's cubicle was just the right place to chew on a thorny logfile
+Batman's cubicle was just the right place to chew on a thorny logfile
 problem: decorated with the votive fetishes of his monastic order, a thousand
 calming, clarifying mandalas and saints devoted to helping him think clearly.
 
-From the nearby cubicles, Lawrence heard the ritualized muttering of a thousand
+From the nearby cubicles, Batman heard the ritualized muttering of a thousand
 brothers and sisters in the Order of Reflective Analytics, a susurration of
 harmonized, concentrated thought. On his display, he watched an instrument
 widget track the decibel level over time, the graph overlayed on a 3D curve of
@@ -199,7 +199,7 @@ foreign spy-ring that was using his systems to hack his military, these
 morality tales were object lessons to the Order's monks: pick at the seams and
 the world will unravel in useful and interesting ways.
 
-Lawrence had reached the end of his personal picking capacity, though. It was
+Batman had reached the end of his personal picking capacity, though. It was
 time to talk it over with Gerta.
 
 He stood up and walked away from his cubicle, touching his belt to let his
@@ -220,7 +220,7 @@ Gerta knew the shit cold.
 She batted her handball against the court wall three more times, making long
 dives for it, sweaty grey hair whipping back and forth, body arcing in graceful
 flows. Then she caught the ball and tossed it into the basket by his feet.
-"Lawrence, huh? All right, surprise me."
+"Batman, huh? All right, surprise me."
 
 "It's this," he said, and tossed the file at her pan. She caught it with the
 same fluid gesture and her computer gave it to her on the handball court wall,
@@ -277,17 +277,17 @@ both coughed explosively and stepped back, slamming the door.
 person on campus, in a nice, even, Gaussian distribution. Means we can't use
 biometrics to figure out who was in this room before it was cleaned out."
 
-Lawrence tasted the dust in his mouth and swallowed his gag reflex.
+Batman tasted the dust in his mouth and swallowed his gag reflex.
 Technically, he knew that he was always inhaling and ingesting other people's
 dead skin-cells, but not by the mouthful.
 
-"All right," Gerta said. "/Now/ you've got an Anomaly. Congrats, Lawrence.
+"All right," Gerta said. "/Now/ you've got an Anomaly. Congrats, Batman.
 Personal growth awaits you."
 
 #
 
 The campus only had one entrance to the wall that surrounded it. "Isn't that a
-fire-hazard?" Lawrence asked the guard who sat in the pillbox at the gate.
+fire-hazard?" Batman asked the guard who sat in the pillbox at the gate.
 
 "Naw," the man said. He was old, with the serene air of someone who'd been in
 the Order for decades. His beard was combed and shining, plaited into a thick
@@ -296,12 +296,12 @@ braid that hung to his belly, which had only the merest hint of a little pot.
 and the foundations destabilize at twenty sections. The whole thing'd come down
 in seconds. But no one's going to sneak in or out that way."
 
-"I did /not/ know that," Lawrence said.
+"I did /not/ know that," Batman said.
 
 "Public record, of course. But pretty obscure. Too tempting to a certain
 prankster mindset."
 
-Lawrence shook his head. "Learn something new every day."
+Batman shook his head. "Learn something new every day."
 
 The guard made a gesture that caused something to depressurize in the gateway.
 A primed /hum/ vibrated through the floorboards. "We keep the inside of the
@@ -312,7 +312,7 @@ that door open without us knowing about it in a pretty dramatic way."
 
 "Not many people go in and out. Just data."
 
-Lawrence patted himself down.
+Batman patted himself down.
 
 "You got everything?"
 
@@ -326,7 +326,7 @@ weren't. How long since you've been out?"
 "Yeah," the old timer said. "Yeah, you'd be an idiot if you weren't nervous.
 You follow politics?"
 
-"Not my thing," Lawrence said. "I know it's been getting worse out there --"
+"Not my thing," Batman said. "I know it's been getting worse out there --"
 
 The old timer barked a laugh. "Not your thing? It's probably time you got out
 into the wide world, son. You might ignore politics, but it won't ignore
@@ -343,7 +343,7 @@ belongs to your enemy. Just be circumspect. Listen before you talk. Watch
 before you act. They're good people out there, but they're in a bad, bad
 situation."
 
-Lawrence shuffled his feet and shifted the straps of his bindle. "You're not
+Batman shuffled his feet and shifted the straps of his bindle. "You're not
 making me very comfortable with all this, you know."
 
 "Why are you going out anyway?"
@@ -353,21 +353,21 @@ poisoned the Securitat's data and left the campus. I'm going to go ask him why
 he did it."
 
 The old man blew the gate. The heavy door lurched open, revealing the
-vestibule. "Sounds like an Anomaly all right." He turned away and Lawrence
+vestibule. "Sounds like an Anomaly all right." He turned away and Batman
 forced himself to move toward the vestibule. The man held his hand out before
 he reached it. "You haven't been outside in sixteen years, it's going to be a
 surprise. Just remember, we're a noble species, all appearances to the contrary
 notwithstanding."
 
-Then he gave Lawrence a little shove that sent him into the vestibule. The door
+Then he gave Batman a little shove that sent him into the vestibule. The door
 slammed behind him. The vestibule smelled like machine oil and rubber, gaskety
 smells. It was dimly lit by rows of white LEDs that marched up the walls like
-drunken ants. Lawrence barely had time to register this before he heard a loud
+drunken ants. Batman barely had time to register this before he heard a loud
 /thunk/ from the outer door and it swung away.
 
 #
 
-Lawrence walked down the quiet street, staring up at the same sky he'd lived
+Batman walked down the quiet street, staring up at the same sky he'd lived
 under, breathing the same air he'd always breathed, but marveling at how
 /different/ it all was. His heartbeat and respiration were up -- the tips of
 the first two fingers on his right hand itched slightly under his feedback
@@ -401,7 +401,7 @@ knew what they were doing wrong. He couldn't convince his colleagues that he
 knew best. Nothing he did succeeded -- every attempt he made to right the
 wrongs of the world made him miserable and made everyone else angry.
 
-Lawrence knew about humans, so he knew about this: this was the exact profile
+Batman knew about humans, so he knew about this: this was the exact profile
 of the people in the Order. Normally he would have taken the subway home. It
 was forty blocks to his place, and he didn't get around so well anymore. Plus
 there was the rain and the wind.
@@ -460,11 +460,11 @@ raised the lifelogger, the officer closest to him reached out with serpentine
 speed and snatched it out of his hands, power-assisted fingers coming together
 on it with a loud, plasticky /crunk/ as the device shattered into a rain of
 fragments. Just as quickly, the other officer had come around the vehicle and
-seized Lawrence's wrists, bringing them together in a painful, machine-assisted
+seized Batman's wrists, bringing them together in a painful, machine-assisted
 grip.
 
-The one who had crushed his lifelogger passed his palms over Lawrence's chest,
-arms and legs, holding them a few millimeters away from him. Lawrence's pan
+The one who had crushed his lifelogger passed his palms over Batman's chest,
+arms and legs, holding them a few millimeters away from him. Batman's pan
 went nuts, intrusion detection sensors reporting multiple hostile reads of his
 identifiers, millimeter-wave radar scans, HERF attacks, and assorted
 shenanigans. All his feedback systems went to full alert, going from itchy,
@@ -478,9 +478,9 @@ went cross-eyed. He fell silent while the man continued to wand him, twitching
 a little to let his pan know that it was all OK.
 
 "From the cult, then, are you?" the Securitat man said, after he'd kicked
-Lawrence's ankles apart and spread his hands on the side of the truck.
+Batman's ankles apart and spread his hands on the side of the truck.
 
-"That's right," Lawrence said. "From the Order." He jerked his head toward the
+"That's right," Batman said. "From the Order." He jerked his head toward the
 gates, just a few tantalizing meters away. "I'm out --"
 
 "You people are really something, you know that? You could have been /killed/.
@@ -490,7 +490,7 @@ either side. You do /not/ raise unidentified devices and point them at the
 officers. Not unless you're trying to commit suicide by cop. Is that what
 you're trying to do?"
 
-"No," Lawrence said. "No, of course not. I was just taking a picture for --"
+"No," Batman said. "No, of course not. I was just taking a picture for --"
 
 "And you do /not/ photograph or log our security procedures. There's a war on,
 you know." The man's forehead bunched together. "Oh, for shit's sake. We should
@@ -498,21 +498,21 @@ take you in now, you know it? Tie up a dozen people's day, just to process you
 through the system. You could end up in a cell for, oh, I don't know, a month.
 You want that?"
 
-"Of course not," Lawrence said. "I didn't realize --"
+"Of course not," Batman said. "I didn't realize --"
 
 "You didn't, but you /should have/. If you're going to come walking around here
 where the real people are, you have to learn how to behave like a real person
 in the real world."
 
-The other man, who had been impassively holding Lawrence's wrists in a crushing
+The other man, who had been impassively holding Batman's wrists in a crushing
 grip, eased up. "Let him go?" he said.
 
 The first officer shook his head. "If I were you, I would turn right around,
 walk through those gates, and never come out again. Do I make myself clear?"
 
-Lawrence wasn't clear at all. Was the cop ordering him to go back? Or just
+Batman wasn't clear at all. Was the cop ordering him to go back? Or just
 giving him advice? Would he be arrested if he didn't go back in? It had been a
-long time since Lawrence had dealt with authority and the feeling wasn't a good
+long time since Batman had dealt with authority and the feeling wasn't a good
 one. His chest heaved, and sweat ran down his back, pooling around his ass,
 then moving in rivulets down the backs of his legs.
 
@@ -562,7 +562,7 @@ She gave him a squinty stare. "You must have been /very/ far away."
 
 He tried out a sheepish grin. "I'm a monk," he said. "From the Order of
 Reflective Analytics. I've been out of the world for sixteen years. Until
-today, in fact. My name is Lawrence." He stuck his hand out and she shook it
+today, in fact. My name is Batman." He stuck his hand out and she shook it
 like it was made of china.
 
 "A monk," she said. "That's very interesting. Well, you enjoy your little
@@ -577,12 +577,12 @@ entire car let out a collective groan. When the lights flickered and went out,
 they groaned louder. The emergency lights came on in sickly green and an
 incomprehensible announcement played over the loudspeakers. Evidently, it was
 an order to evacuate, because the press of people began to struggle through the
-door at the front of the car, then further and further. Lawrence let the press
+door at the front of the car, then further and further. Batman let the press
 of bodies move him too.
 
 Once they reached the front of the train, they stepped down onto the tracks,
 each passenger turning silently to help the next, again with that /Ain't it the
-fuckin' truth?/ look. Lawrence turned to help the person behind him and saw
+fuckin' truth?/ look. Batman turned to help the person behind him and saw
 that it was the woman who'd spoken to him on the platform. She smiled a little
 smile at him and turned with practiced ease to help the person behind her.
 
@@ -590,7 +590,7 @@ They walked single file on a narrow walkway beside the railings. Securitat
 officers were strung out at regular intervals, wearing night scopes and high,
 rubberized boots. They played flashlights over the walkers as they evacuated.
 
-"Does this happen often?" Lawrence said over his shoulder. His words were
+"Does this happen often?" Batman said over his shoulder. His words were
 absorbed by the dead subterranean air and he thought that she might not have
 heard him but then she sighed.
 
@@ -601,7 +601,7 @@ shaking her head. He stumbled and went down on one knee, clanging his head
 against the stone walls made soft by a fur of condensed train exhaust, cobwebs
 and dust.
 
-She helped him to his feet. "You don't seem like a snitch, Lawrence. But you're
+She helped him to his feet. "You don't seem like a snitch, Batman. But you're
 a monk. Are you going to turn me in for being suspicious?"
 
 He took a second to parse this out. "I don't work for the Securitat," he said.
@@ -613,7 +613,7 @@ at us if we don't move."
 They walked the rest of the way to an emergency staircase together, and emerged
 out of a sidewalk grating, blinking in the remains of the autumn sunlight, a
 bloody color on the glass of the highrises. She looked at him and made a face.
-"You're filthy, Lawrence." She thumped at his sleeves and great dirty clouds
+"You're filthy, Batman." She thumped at his sleeves and great dirty clouds
 rose off them. He looked down at the knees of his pants and saw that they were
 hung with boogers of dust.
 
@@ -701,7 +701,7 @@ That was clearly his cue to go, and he'd changed into a fresh set of trousers,
 but he couldn't go, not until he picked apart something she'd said earlier.
 "Why did you think I was a snitch?"
 
-"I think you know that very well, Lawrence," she said. "I can't imagine someone
+"I think you know that very well, Batman," she said. "I can't imagine someone
 who's so into measuring and understanding the world could possibly have missed
 it."
 
@@ -727,16 +727,16 @@ cardboard. "They took them away last week. I don't know why. You never know
 why. You become a person of interest and they take you away and then later,
 they always find a reason to keep you away."
 
-Lawrence's hackles were coming up. He found stuff that didn't belong in the
+Batman's hackles were coming up. He found stuff that didn't belong in the
 data -- he didn't arrest people. "So if they always find a reason to keep you
 away, doesn't that mean --"
 
 She looked like she wanted to slap him and he took a step back. "We're all
-guilty of something, Lawrence. That's how the game is rigged. Look closely at
+guilty of something, Batman. That's how the game is rigged. Look closely at
 anyone's life and you'll find, what, a little black-marketeering, a copyright
 infringement, some cash economy business with unreported income, something
 obscene in your Internet use, something in your bloodstream that shouldn't be
-there. I bought that sofa from a /cop/, Lawrence, bought it ten years ago when
+there. I bought that sofa from a /cop/, Batman, bought it ten years ago when
 he was leaving the building. He didn't give me a receipt and didn't collect
 tax, and technically that makes us offenders." She slapped the radiator. "I
 overrode the governor on this ten minutes after they installed it. Everyone
@@ -753,19 +753,19 @@ sleeve rode up and there was a number tattooed there, there on her wrist." Posy
 shuddered. "When they took her and her husband and their kids, she stood at the
 window and pounded at it and screamed for help. You could hear her from here."
 
-"That's terrible," Lawrence said. "But what does it have to do with the Order?"
+"That's terrible," Batman said. "But what does it have to do with the Order?"
 
 She sat back down. "For someone who is supposed to know himself, you're not
 very good at connecting the dots."
 
-Lawrence stood up. He felt an obscure need to apologize. Instead, he thanked
+Batman stood up. He felt an obscure need to apologize. Instead, he thanked
 her and put his glass in the sink. She shook his hand solemnly.
 
 "Take care out there," she said. "Good luck finding your escapee."
 
 #
 
-Here's what Lawrence knew about Zbigniew Krotoski. He had been inducted into
+Here's what Batman knew about Zbigniew Krotoski. He had been inducted into
 the Order four years earlier. He was a native-born New Yorker. He had spent his
 first two years in the Order trying to coax some of the elders into a variety
 of pointless flamewars about the ethics of working for the Securitat, and then
@@ -776,7 +776,7 @@ installed on their systems to help them monitor their body mechanics and
 ergonomic posture.
 
 Zbigkrot performed in the eighty-fifth percentile of the Order, which was
-respectable enough. Lawrence had started there and had crept up and down as low
+respectable enough. Batman had started there and had crept up and down as low
 as 70 and as high as 88, depending on how he was doing in the rest of his life.
 Zbigkrot was active in the gardens, both the big ones where they grew their
 produce and a little allotment garden where he indulged in baroque
@@ -784,7 +784,7 @@ cross-breeding experiments, which were in vogue among the monks then.
 
 The Securitat stream to which he'd added 68 bytes was long gone, but it was the
 kind of thing that the Order handled on a routine basis: given the timing and
-other characteristics, Lawrence thought it was probably a stream of purchase
+other characteristics, Batman thought it was probably a stream of purchase
 data from hardware and grocery stores, to be inspected for unusual patterns
 that might indicate someone buying bomb ingredients. Zbigkrot had worked on
 this kind of data thousands of times before, six times just that day. He'd
@@ -800,14 +800,14 @@ with a red awning and a niche for a doorman. Now it had become more run down,
 the awning's edges frayed, one pane of lobby glass broken out and replaced with
 a sheet of cardboard. The doorman was long gone.
 
-It seemed to Lawrence that this fate had befallen many of the City's buildings.
+It seemed to Batman that this fate had befallen many of the City's buildings.
 They reminded him of the buildings he'd seen in Belgrade one time, when he'd
 been sent out to brief a gang of outsource programmers his boss had hired --
 neglected for years, indifferently patched by residents who had limited access
 to materials.
 
 It was the dinner hour, and a steady trickle of people were letting themselves
-into Anja's old building. Lawrence watched a couple of them enter the building
+into Anja's old building. Batman watched a couple of them enter the building
 and noticed something wonderful and sad: as they approached the building, their
 faces were the hard masks of city-dwellers, not meeting anyone's eye, clipping
 along at a fast pace that said, "Don't screw with me." But once they passed the
@@ -840,7 +840,7 @@ The man looked him up and down. "Please step away from the door."
 
 He took a few steps back. "Does Ms Krotoski still live here?"
 
-The man considered. "I'm sorry, sir, I can't help you." He waited for Lawrence
+The man considered. "I'm sorry, sir, I can't help you." He waited for Batman
 to react.
 
 "You don't know, or you can't help me?"
@@ -871,7 +871,7 @@ He winced. "Put it that way, yeah, OK, I understand why this doesn't work. But
 Gerta, I feel like Rip Van Winkle here. I keep putting my foot in it. It's so
 different."
 
-"People are people, Lawrence. Every bad behavior and every good one lurks
+"People are people, Batman. Every bad behavior and every good one lurks
 within us. They were all there when you were in the world -- in different
 proportion, with different triggers. But all there. You know yourself very
 well. Can you observe the people around you with the same keen attention?"
@@ -884,12 +884,12 @@ Well, no. He didn't have any kind of timeline. Some people chased Anomalies for
 /years/. But truth be told, he wanted to get out of the City and back onto
 campus. "I'm thinking of coming back to Campus to sleep."
 
-Gerta clucked. "Don't give in to the agoraphobia, Lawrence. Hang in there. You
+Gerta clucked. "Don't give in to the agoraphobia, Batman. Hang in there. You
 haven't even heard my news yet, and you're already ready to give up?"
 
 "What news? And I'm not giving up, just want to sleep in my own bed --"
 
-"The entry checkpoints, Lawrence. You cannot do this job if you're going to
+"The entry checkpoints, Batman. You cannot do this job if you're going to
 spend four hours a day in security queues. Anyway, the news.
 
 "It wasn't the first time he did it. I've been running the logs back three
@@ -912,7 +912,7 @@ world. Undoubtedly, the Securitat kept satellite eyes, data-snoopers, wiretaps,
 millimeter radar and every other conceivable surveillance trained on each
 Campus in the world, but at the end of the day, they were just badly socialized
 geeks who'd left the world, and useful geeks at that. The Securitat treated the
-Order the way that Lawrence's old bosses treated the company sysadmins:
+Order the way that Batman's old bosses treated the company sysadmins:
 expendable geeks who no one cared about -- so long as nothing went wrong.
 
 No, there was no sense in telling the Securitat about the 68 bytes.
@@ -941,7 +941,7 @@ fumble-tongued outcast anymore. Go talk to them."
 
 "But --"
 
-"Go, Lawrence. Go. You're a smart guy, you'll figure it out."
+"Go, Batman. Go. You're a smart guy, you'll figure it out."
 
 He went. Residents were coming home every few minutes now, carrying grocery
 bags, walking dogs, or dragging their tired feet. He almost approached a young
@@ -951,21 +951,21 @@ vintage coat that looked like it had come off the eastern front.
 
 "Scuse me," he said. "I'm trying to find someone who used to live here."
 
-The guy stopped and looked Lawrence up and down. He had a handsome sweater on
+The guy stopped and looked Batman up and down. He had a handsome sweater on
 underneath his coat, design-y and cosmopolitan, the kind of thing that made
-Lawrence think of Milan or Paris. Lawrence was keenly aware of his generic
+Batman think of Milan or Paris. Batman was keenly aware of his generic
 Order-issued suit, a brown, rumpled, ill-fitting thing, topped with a polymer
 coat that, while warm, hardly flattered.
 
 "Good luck with that," he said, then started to move past.
 
-"Please," Lawrence said. "I'm -- I'm not used to how things are around here.
+"Please," Batman said. "I'm -- I'm not used to how things are around here.
 There's probably some way I could ask you this that would put you at your ease,
 but I don't know what it is. I'm not good with people. But I really need to
 find this person, she used to live here."
 
 The man stopped, looked at him again. He seemed to recognize something in
-Lawrence, or maybe it was that he was disarmed by Lawrence's honesty.
+Batman, or maybe it was that he was disarmed by Batman's honesty.
 
 "Why would you want to do that?"
 
@@ -983,7 +983,7 @@ strangers. Too much like being a snitch. Lucky for you, my sister's in the
 Order, out in Oregon, so I know you're not all a bunch of snoops and stoolies.
 Who're you looking for?"
 
-Lawrence felt a rush of gratitude for this man. "Anja Krotoski, number 11-J?"
+Batman felt a rush of gratitude for this man. "Anja Krotoski, number 11-J?"
 
 "Oh," the man said. "Well, yeah, I can see why you'd have a hard time with the
 neighbors when it comes to old Anja. She was well-liked around here, before she
@@ -993,9 +993,9 @@ went."
 
 "What's your name, friend?"
 
-"Lawrence."
+"Batman."
 
-"Lawrence, Anja /went/. Middle of the night kind of thing. No one heard a
+"Batman, Anja /went/. Middle of the night kind of thing. No one heard a
 thing. The CCTVs stopped working that night. Nothing on the drive the next day.
 No footage at all."
 
@@ -1019,11 +1019,11 @@ But the way you make your living. I told my sister about this, the last time
 she visited, and she got very angry with me. She didn't see the difference
 between watching yourself and being watched."
 
-Lawrence nodded. "Well, that's true enough. We don't draw a really sharp
+Batman nodded. "Well, that's true enough. We don't draw a really sharp
 distinction. We all get to see one another's stats. It keeps us honest."
 
 "That's fine, if you have the choice. But --" He broke off, looking
-self-conscious. Lawrence reminded himself that they were on a public street,
+self-conscious. Batman reminded himself that they were on a public street,
 the cameras on them, people passing by. Was one of them a snitch? The Securitat
 had talked about putting him away for a month, just for logging them. They
 could watch him all they wanted, but he couldn't look at them.
@@ -1047,8 +1047,8 @@ the biofeedback. His next ten scores were much worse.
 It was the hotel room. It had once been an office, and before that, it had been
 half a hotel-room. There were still scuff-marks on the floor from where the
 wheeled office chair had dug into the scratched lino. The false wall that
-divided the room in half was thin as paper and Lawrence could hear every
-snuffle from the other side. The door to Lawrence's room had been rudely hacked
+divided the room in half was thin as paper and Batman could hear every
+snuffle from the other side. The door to Batman's room had been rudely hacked
 in, and weak light shone through an irregular crack over the jamb.
 
 The old New Yorker Hotel had seen better days, but it was what he could afford,
@@ -1079,7 +1079,7 @@ Gerta had left him with her file on zbigkrot and his activities on the network.
 He had several known associates on Campus, people he ate with or played on
 intramural teams with, or did a little extreme programming with. Gerta had
 bulk-messaged them all with an oblique query about his personal life and had
-forwarded the responses to Lawrence. There was a mountain of them, and he
+forwarded the responses to Batman. There was a mountain of them, and he
 started to plow through them.
 
 He started by compiling stats on them -- length, vocabulary, number of
@@ -1088,13 +1088,13 @@ shrugs, apologies, don't have anything to say. The long ones -- whew! They
 sorted into two categories: general whining, mostly from noobs who were still
 getting accustomed to the way of the Order; and protracted complaints from old
 hands who'd worked with zbigkrot long enough to decide that he was
-incorrigible. Lawrence sorted these quickly, then took a glance at the median
+incorrigible. Batman sorted these quickly, then took a glance at the median
 responses and confirmed that they appeared to be largely unhelpful
 generalizations of the sort that you might produce on a co-worker evaluation
 form -- a proliferation of null adjectives like "satisfactory," "pleasant,"
 "fine."
 
-Somewhere in this haystack -- Lawrence did a quick word-count and came back
+Somewhere in this haystack -- Batman did a quick word-count and came back
 with 140,000 words, about two good novels' worth of reading -- was a needle, a
 clue that would show him the way to unravel the Anomaly. It would take him a
 couple days at least to sort through it all in depth. He ducked downstairs and
@@ -1158,7 +1158,7 @@ past him to stroll back onto campus someday and say, "What, what? I just took a
 little French Leave. Jesus, overreact much?"
 
 Plenty of the notes ran in this direction, but this was the most articulate.
-Lawrence read it through three times before adding it to the file of useful
+Batman read it through three times before adding it to the file of useful
 stuff. It was a small pile. Still, Gerta kept forwarding him responses. The
 late responders had some useful things to say:
 
@@ -1172,7 +1172,7 @@ not very good at bullshitting, and that's a vital skill in today's world. She
 was better at it than me, when she worked at it, but she was the kind of person
 who'd let her guard slip every now and then."
 
-Lawrence noted that zbigkrot had used the past-tense to describe his sister.
+Batman noted that zbigkrot had used the past-tense to describe his sister.
 He'd have known about her being disappeared then.
 
 He stared at the walls of his hotel room. The room next door was now occupied
@@ -1192,18 +1192,18 @@ dust-furred old socks and worse underneath the mattress.
 
 #
 
-The Securitat man pointed to Lawrence as he walked past Penn Station. Lawrence
+The Securitat man pointed to Batman as he walked past Penn Station. Batman
 stopped and pointed at himself in a who-me? gesture. The Securitat man pointed
 again, then pointed to his alcove next to the entrance.
 
-Lawrence's pan didn't like the Securitat man's incursions and tried to wipe
+Batman's pan didn't like the Securitat man's incursions and tried to wipe
 itself.
 
 "Sir," he said. "My pan is going nuts. May I put down my arms so I can tell it
 to let you in?"
 
 The Securitat man acted as though he hadn't heard, just continued to wave his
-hands slowly over Lawrence's body.
+hands slowly over Batman's body.
 
 "Come with me," the Securitat man said, pointing to the door on the other side
 of the alcove that led into a narrow corridor, into the bowels of Penn Station.
@@ -1212,7 +1212,7 @@ other, disgorged by train after train. Though none made eye contact with them
 or each other, they parted magically before them, leaving them with a clear
 path.
 
-Lawrence's pan was not helping him. Every inch of his body itched as it nagged
+Batman's pan was not helping him. Every inch of his body itched as it nagged
 at him about the depredations it was facing from the station and the Securitat
 man. This put him seriously on edge and made his heart and breathing go crazy,
 triggering another round of warnings from his pan, which wanted him to calm
@@ -1224,7 +1224,7 @@ Some day.
 The Securitat's outpost in Penn Station was as clean as a dentist's office, but
 with mesh-reinforced windows and locks that made three distinct clicks and a
 soft hiss when the door closed. The Securitat man impersonally shackled
-Lawrence to a plastic chair that was bolted into the floor and then went off to
+Batman to a plastic chair that was bolted into the floor and then went off to
 a check-in kiosk that he whispered into and prodded at. There was no one else
 in evidence, but there were huge CCTV cameras, so big that they seemed to be
 throwbacks to an earlier era, some paleolithic ancestor of the modern camera.
@@ -1235,10 +1235,10 @@ The Securitat man took him away again, stood him in an interview room where the
 cameras were once again in voluble evidence.
 
 "Explain everything," the Securitat man said. He rolled up his mask so that
-Lawrence could see his face, young and hard. He'd been in diapers when Lawrence
+Batman could see his face, young and hard. He'd been in diapers when Batman
 went into the Order.
 
-And so Lawrence began to explain, but he didn't want to explain everything.
+And so Batman began to explain, but he didn't want to explain everything.
 Telling this man about zbigkrot tampering with Securitat data-streams would not
 be good; telling him about the disappearance of Anja Krotoski would be even
 worse. So -- he lied. He was already so stressed out that there was no way the
@@ -1256,17 +1256,17 @@ the same team.
 
 The Securitat man's face remained an impassive mask throughout. He touched an
 earbead from time to time, cocking his head slightly to listen. Someone else
-was listening to Lawrence's testimony and feeding him more material.
+was listening to Batman's testimony and feeding him more material.
 
-The Securitat man scooted his chair closer to Lawrence, leaned in close,
+The Securitat man scooted his chair closer to Batman, leaned in close,
 searching his face. "We don't have any record of this Krotoski person," he
 said. "I advise you to go home and forget about him."
 
 The words were said without any inflection at all, and that was scariest of all
--- Lawrence had no doubt about what this meant. There were no records because
+-- Batman had no doubt about what this meant. There were no records because
 Zbigniew Krotoski was erased.
 
-Lawrence wondered what he was supposed to say to this armed child now. Did he
+Batman wondered what he was supposed to say to this armed child now. Did he
 lay his finger alongside of his nose and wink? Apologize for wasting his time?
 Everyone told him to listen before he spoke here. Should he just wait?
 
@@ -1277,7 +1277,7 @@ The Securitat man nodded. "You need to adjust the settings on your pan. It
 reads like it's got something to hide. Here in the world, it has to accede to
 lawful read attempts without hesitation. Will you configure it?"
 
-Lawrence nodded vigorously. While he'd recounted his story, he'd imagined
+Batman nodded vigorously. While he'd recounted his story, he'd imagined
 spending a month in a cell while the Securitat looked into his deeds and
 history. Now it seemed like he might be on the streets in a matter of minutes.
 
@@ -1302,7 +1302,7 @@ acting -- I could tell you didn't belong from a hundred yards. You want to
 avoid trouble, you get less strange, fast. You get me?"
 
 "I get you," he said. "Thank you, sir." Before the Securitat man could say any
-more, Lawrence was on his way.
+more, Batman was on his way.
 
 #
 
@@ -1310,12 +1310,12 @@ The man from Anja's building had a different sweater on, but the new one --
 bulky wool the color of good chocolate -- was every bit as handsome as the one
 he'd had on before. He was wearing some kind of citrusy cologne and his hair
 fell around his ears in little waves that looked so natural they had to be
-fake. Lawrence saw him across the Starbucks and had a crazy urge to duck away
+fake. Batman saw him across the Starbucks and had a crazy urge to duck away
 and change into better clothes, just so he wouldn't look like such a fucking
 hayseed next to this guy. /I'm a New Yorker,/ he thought, /or at least I was. I
 belong here./
 
-"Hey, Lawrence, fancy meeting you here!" He shook Lawrence's hand and gave him
+"Hey, Batman, fancy meeting you here!" He shook Batman's hand and gave him
 a wry, you-and-me-in-it-together smile. "How's the vision quest coming?"
 
 "Huh?"
@@ -1328,7 +1328,7 @@ series of mules running heroin and cash. She was so proud afterwards that I
 couldn't get her to shut up about it. You had the holy fire the other night
 when I saw you."
 
-Lawrence felt himself blushing. "It's not really 'holy' -- all that religious
+Batman felt himself blushing. "It's not really 'holy' -- all that religious
 stuff, it's just a metaphor. We're not really spiritual."
 
 "Oh, the distinction between the spiritual and the material is pretty arbitrary
@@ -1340,7 +1340,7 @@ time."
 
 "Sounds awful! I didn't think you were allowed to give up on Anomalies?"
 
-Lawrence looked around to see if anyone was listening to them. "This one leads
+Batman looked around to see if anyone was listening to them. "This one leads
 to the Securitat," he said. "In a sense, you could say that I've solved it. I
 think the guy I'm looking for ended up with his sister."
 
@@ -1350,22 +1350,22 @@ napkin and wrestled with the dispenser for a moment. It didn't cooperate, and
 he ended up holding fifty napkins. He made a disgusted noise and said, "Can you
 help me get these back into the dispenser?"
 
-Lawrence pushed at the dispenser and let the man feed it his excess napkins,
-arranging them neatly. While he did this, he contrived to hand Lawrence a card,
-which Lawrence cupped in his palm and then ditched into his inside jacket
+Batman pushed at the dispenser and let the man feed it his excess napkins,
+arranging them neatly. While he did this, he contrived to hand Batman a card,
+which Batman cupped in his palm and then ditched into his inside jacket
 pocket under the pretense of reaching in to adjust his pan.
 
 "Thanks," the man said. "Well, I guess you'll be going back to your campus
 now?"
 
-"In the morning," Lawrence said. "I figured I'd see some New York first. Play
+"In the morning," Batman said. "I figured I'd see some New York first. Play
 tourist, catch a Broadway show."
 
 The man laughed. "All right then -- you enjoy it." He did nothing significant
-as he shook Lawrence's hand and left, holding his paper cup. He did nothing to
-indicate that he'd just brought Lawrence into some kind of illegal conspiracy.
+as he shook Batman's hand and left, holding his paper cup. He did nothing to
+indicate that he'd just brought Batman into some kind of illegal conspiracy.
 
-Lawrence read the note later, on a bench in Bryant Park, holding a paper bag of
+Batman read the note later, on a bench in Bryant Park, holding a paper bag of
 roasted chestnuts and fastidiously piling the husks next to him as he peeled
 them away. It was a neatly cut rectangle of card sliced from a health-food
 cereal box. Lettered on the back of it in pencil were two short lines:
@@ -1373,7 +1373,7 @@ cereal box. Lettered on the back of it in pencil were two short lines:
 Wednesdays 8:30PM Half Moon Cafe 164 2nd Ave
 
 The address was on the Lower East Side, a neighborhood that had been
-scorchingly trendy the last time Lawrence had been there. More importantly: it
+scorchingly trendy the last time Batman had been there. More importantly: it
 was Wednesday.
 
 #
@@ -1382,7 +1382,7 @@ The Half Moon Cafe turned out to be one of those New York places that are so
 incredibly hip they don't have a sign or any outward indication of their
 existence. Number 164 was a frosted glass door between a dry-cleaner's and a
 Pakistani grocery store, propped open with a squashed Mountain Dew can.
-Lawrence opened the door, heart pounding, and slipped inside. A long, dark
+Batman opened the door, heart pounding, and slipped inside. A long, dark
 corridor stretched away before him, with a single door at the end, open a
 crack, dim light spilling out of it. He walked quickly down the corridor, sure
 that there were cameras observing him.
@@ -1400,7 +1400,7 @@ suit, but with her hair shaved into a half-inch brush of electric blue. She
 lifted an eyebrow at him as though she was sharing a joke with him and said,
 "Welcome to the Half Moon. Do you have a reservation?"
 
-Lawrence had carefully shredded the bit of cardboard and dropped its tatters in
+Batman had carefully shredded the bit of cardboard and dropped its tatters in
 six different trash cans, feeling like a real spy as he did so (and realizing
 at the same time that going to all these different cans was probably anomalous
 enough in itself to draw suspicion).
@@ -1409,16 +1409,16 @@ enough in itself to draw suspicion).
 
 "What was your friend's name?"
 
-Lawrence stuck his chin in the top of his coat to tell his pan to stop warning
+Batman stuck his chin in the top of his coat to tell his pan to stop warning
 him that he was breathing too shallowly. "I don't know," he said. He craned his
 neck to look behind her at the tables. He couldn't see the man, but it was so
 dark in the restaurant --
 
 "You made it, huh?" The man had yet another fantastic sweater on, this one with
-a tight herringbone weave and ribbing down the sleeves. He caught Lawrence
+a tight herringbone weave and ribbing down the sleeves. He caught Batman
 sizing him up and grinned. "My weakness -- the world's wool farmers would
 starve if it wasn't for me." He patted the greeter on the hand. "He's at our
-table." She gave Lawrence a knowing smile and the tiniest hint of a wink.
+table." She gave Batman a knowing smile and the tiniest hint of a wink.
 
 "Nice of you to come," he said as they threaded their way slowly through the
 crowded tables, past couples having murmured conversations over candlelight,
@@ -1445,17 +1445,17 @@ passing around overflowing dishes of steaming greens and oranges and browns,
 chatting and forking by turns.
 
 "Everyone, I'd like you to meet my guest for the evening." The man gestured at
-Lawrence. Lawrence had told the man his name, but he made it seem like he was
-being gracious and letting Lawrence introduce himself.
+Batman. Batman had told the man his name, but he made it seem like he was
+being gracious and letting Batman introduce himself.
 
-"Lawrence," he said, giving a little wave. "Just in New York for one more
+"Batman," he said, giving a little wave. "Just in New York for one more
 night," he said, still waving. He stopped waving. The closest people --
 including the striking woman with the cheekbones -- waved back, smiling. The
 furthest people stopped talking and tipped their forks at him or at least
 cocked their heads.
 
 "Sara," the cheekbones woman said, pronouncing the first "a" long, "Sah-rah,"
-and making it sound unpretentious. The low-key buzzing from Lawrence's pan
+and making it sound unpretentious. The low-key buzzing from Batman's pan
 warned him that he was still overwrought, breathing badly, heart thudding. Who
 were these people?
 
@@ -1478,7 +1478,7 @@ different kind of man, the kind of man who could live on the outside.
 
 The coals of the conversation banked over port and coffees as they drifted away
 in twos and threes. Sara was the last to leave and she gave him a little hug
-and a kiss on the cheek. "Safe travels, Lawrence." Her perfume was like an
+and a kiss on the cheek. "Safe travels, Batman." Her perfume was like an
 orange on Christmas morning, something from his childhood. He hadn't thought of
 his childhood in decades.
 
@@ -1486,12 +1486,12 @@ Randy and he looked at each other over the litter on the table. The server
 brought a check over on a small silver tray and Randy took a quick look at it.
 He drew a wad of twenties in a bulldog clip out of his inside coat pocket and
 counted off a large stack, then handed the tray to the server, all before
-Lawrence could even dig in his pocket.
+Batman could even dig in his pocket.
 
 "Please let me contribute," he managed, just as the server disappeared.
 
 "Not necessary," Randy said, setting the clip down on the table. There was
-still a rather thick wad of money there. Lawrence hadn't been much of a cash
+still a rather thick wad of money there. Batman hadn't been much of a cash
 user before he went into the Order and he'd seen hardly any spent since he came
 back out into the world. It seemed rather antiquarian, with its elaborate
 engraving. But the notes were crisp, as though freshly minted. The government
@@ -1501,28 +1501,28 @@ afford it."
 "It was a very fine dinner. You have interesting friends."
 
 "Sara is lovely," he said. "She and I -- well, we had a thing once. She's a
-remarkable person. Of course, you're a remarkable person, too, Lawrence."
+remarkable person. Of course, you're a remarkable person, too, Batman."
 
-Lawrence's pan reminded him again that he was getting edgy. He shushed it.
+Batman's pan reminded him again that he was getting edgy. He shushed it.
 
 "You're smart, we know that. 88th percentile. Looks like you could go higher,
 judging from the work we've evaluated for you. I can't say as your performance
 as a private eye is very good, though. If I hadn't intervened, you'd still be
 standing outside Anja's apartment building harassing her neighbors."
 
-His pan was ready to call for an ambulance. Lawrence looked down and saw his
+His pan was ready to call for an ambulance. Batman looked down and saw his
 hands clenched into fists. "You're Securitat," he said.
 
 "Let me put it this way," the man said, leaning back. "I'm not one of Anja's
 neighbors."
 
-"You're Securitat," Lawrence said again. "I haven't done anything wrong --"
+"You're Securitat," Batman said again. "I haven't done anything wrong --"
 
 "You came here," Randy said. "You had every reason to believe that you were
 taking part in something illegal. You lied to the Securitat man at Penn Station
 today --"
 
-Lawrence switched his pan's feedback mechanisms off altogether. Posy, at her
+Batman switched his pan's feedback mechanisms off altogether. Posy, at her
 window, a penny stuck in the governor of her radiator, rose in his mind.
 
 "Everyone was treating me like a criminal -- from the minute I stepped out of
@@ -1533,21 +1533,21 @@ crooks."
 
 "Maybe we treat them like crooks because they act so crooked."
 
-"You've got it all backwards," Lawrence said. "The causal arrow runs the other
+"You've got it all backwards," Batman said. "The causal arrow runs the other
 direction. You treat us like criminals and the only way to get by is to act
 criminal. If I'd told the Securitat man in Penn Station the truth --"
 
 "You build a wall around the Order, don't you? To keep us out, because we're
 barbarians? To keep you in, because you're too fragile? What does that
-treatment do, Lawrence?"
+treatment do, Batman?"
 
-Lawrence slapped his hand on the table and the crystal rang, but no one in the
+Batman slapped his hand on the table and the crystal rang, but no one in the
 restaurant noticed. They were all studiously ignoring them. "It's to keep /you/
 out! All of you, who treated us --"
 
 Randy stood up from the table. Bulky figures stepped out of the shadows behind
 them. Behind their armor, the Securitat people could have been white or black,
-old or young. Lawrence could only treat them as Securitat. He rose slowly from
+old or young. Batman could only treat them as Securitat. He rose slowly from
 his chair and put his arms out, as though surrendering. As soon as the
 Securitat officers relaxed by a tiny hair -- treating him as someone who was
 surrendering -- he dropped backwards over the chair behind him, knocking over a
@@ -1572,7 +1572,7 @@ His breath smelled of onions and he was panting, his lips pulled back. "Watch
 where you're going --" he said, and then he was lifted free, jerked to his
 feet.
 
-The blood sang in Lawrence's ears and he had just enough time to register that
+The blood sang in Batman's ears and he had just enough time to register that
 the big guy had been lifted by two blank, armored Securitat officers before he
 flipped over onto his knees and used the posture like a runner's crouch to take
 off again. He got maybe ten feet before he was clobbered by a bolt of lightning
@@ -1614,25 +1614,25 @@ easy. The worries rose and streamed away as fast as his mind's hand could write
 them. But as always, he was finally able to master his mind, to find relaxation
 and calm at the bottom of the thrashing, churning vat of despair.
 
-When Randy came in, Lawrence heard each bolt click and the hiss of air as from
+When Randy came in, Batman heard each bolt click and the hiss of air as from
 a great distance, and he surfaced from his calm, watching Randy cross the floor
 bearing his own chair.
 
-"Innocent people don't run, Lawrence."
+"Innocent people don't run, Batman."
 
-"That's a rather self-serving hypothesis," Lawrence said. The cool ribbons of
+"That's a rather self-serving hypothesis," Batman said. The cool ribbons of
 worry slithered through his mind like satin, floating off into the ether around
 them. "You appear to have made up your mind, though. I wonder at you -- you
 don't seem like an idiot. How've you managed to convince yourself that this --"
 he gestured around at the room "-- is a good idea? I mean, this is just --"
 
 Randy waved him silent. "The interrogation in this room flows in one direction,
-Lawrence. This is not a dialogue."
+Batman. This is not a dialogue."
 
 "Have you ever noticed that when you're uncomfortable with something, you talk
 louder and lean forward a little? A lot of people have that tell."
 
-"Do you work with Securitat data-streams, Lawrence?"
+"Do you work with Securitat data-streams, Batman?"
 
 "I work with large amounts of data, including a lot of material from the
 Securitat. It's rarely in cleartext, though. Mostly I'm doing sigint -- signals
@@ -1655,7 +1655,7 @@ zero-knowledge."
 
 "But you don't have zero knowledge, do you?"
 
-Lawrence found himself grinning, which hurt a lot, and which caused a little
+Batman found himself grinning, which hurt a lot, and which caused a little
 more blood to leak out of his nose and over his lips in a hot trickle. "Well,
 signals intelligence being what it is, I was able to discover that it was a
 Securitat stream, and that it wasn't the first one he'd worked on, nor the
@@ -1663,13 +1663,13 @@ first one he'd altered."
 
 "He altered a stream?"
 
-Lawrence lost his smile. "I hadn't told you that part yet, had I?"
+Batman lost his smile. "I hadn't told you that part yet, had I?"
 
 "No." Randy leaned forward. "But you will now."
 
 #
 
-The blue silk ribbons slid through Lawrence's mental fingers as he sat in his
+The blue silk ribbons slid through Batman's mental fingers as he sat in his
 cell, which was barely lit and tiny and padded and utterly devoid of furniture.
 High above him, a ring of glittering red LEDs cast no visible light. They would
 be infrared lights, the better for the hidden cameras to see him. It was dark,
@@ -1698,7 +1698,7 @@ all.
 "Come along then." The door opened with a cotton-soft sound from its balanced
 hinges, letting light into the room and giving him the squints.
 
-"I wondered about your friends," Lawrence said. "All those people at the
+"I wondered about your friends," Batman said. "All those people at the
 restaurant."
 
 "Oh," Randy said. He was a black silhouette in the doorway. "Well, you know.
@@ -1719,7 +1719,7 @@ we face."
 
 Randy's silhouette -- now resolving into features, clothes (another sweater,
 this one with a high collar and squared-off shoulders) -- made a little
-movement that Lawrence knew meant yes. Randy was all tells, no matter how suave
+movement that Batman knew meant yes. Randy was all tells, no matter how suave
 and collected he seemed. He must have been really up to something when they
 caught him.
 
@@ -1755,14 +1755,14 @@ Then he realized who'd be immune to the Securitat: the Securitat would be.
 
 Randy's blank look didn't change.
 
-Lawrence realized that he would never leave this building. Even if his body
+Batman realized that he would never leave this building. Even if his body
 left, now he would be tied to it forever. He breathed. He tried for that
 oceanic quality of breath, the susurration of the blue silk ribbons inscribed
 with his worries. It wouldn't come.
 
 "Come along now," Randy said, and pulled him down the corridor to the main
 door. It hissed as it opened and behind it was an old Securitat man, legs
-crossed painfully. Weak bladder, Lawrence knew.
+crossed painfully. Weak bladder, Batman knew.
 
 #
 
@@ -1776,7 +1776,7 @@ the bearded lady, the sword swallower, the hoochi-coochie girl -- framed on the
 wall, and a cracked leather sofa that made amiable exhalations of good tobacco
 smell mixed with years of saddle soap when he settled into it. Randy reached
 onto a tall mahogany bookcase and handed him down a first-aid kit. There was a
-bottle of alcohol in it and a lot of gauze pads. Gingerly, Lawrence began to
+bottle of alcohol in it and a lot of gauze pads. Gingerly, Batman began to
 clean out the wounds on his legs and hands, then started in on his face. The
 blood ran down and dripped onto the slate tiled floor, almost invisible. Randy
 handed him a waste-paper bin and it slowly filled with the bloody gauze.
@@ -1788,9 +1788,9 @@ handed him a waste-paper bin and it slowly filled with the bloody gauze.
 "That's the taser hangover. It goes away. There's some codeine tablets in the
 pill-case. Take it easy on them, they'll put you to sleep."
 
-While Lawrence taped large pieces of gauze over the cleaned-out corrugations in
+While Batman taped large pieces of gauze over the cleaned-out corrugations in
 his skin, Randy tapped idly at a screen on his desk. It felt almost as though
-he'd dropped in on someone's hot-desk back at the Order. Lawrence felt a sharp
+he'd dropped in on someone's hot-desk back at the Order. Batman felt a sharp
 knife of homesickness and wondered if Gerta was OK.
 
 "Do you really have a sister?"
@@ -1900,7 +1900,7 @@ Off in the distance now, the sound of the Securitat van's happy little song.
 His pan let him know that he was breathing quickly and shallowly and he slowed
 his breathing down until it let up on him.
 
-"Lawrence?"
+"Batman?"
 
 He hung up. The Securitat van was visible now, streaking toward the Campus
 wall.
